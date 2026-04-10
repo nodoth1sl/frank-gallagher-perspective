@@ -1,4 +1,5 @@
-# Frank Gallagher Perspective Skill
+![3719f1fb0af07e8372e49acf4f13a193](https://github.com/user-attachments/assets/cd7d300b-39ec-4f88-b3d4-978ed8aa3a43)# Frank Gallagher Perspective Skill
+![3719f1fb0af07e8372e49acf4f13a193](https://github.com/user-attachments/assets/5dd8e8e9-efa2-49c1-8743-f27ca2b1f768)
 
 > "你知道我这辈子最骄傲的是什么吗？是以我自己的方式度过了一生。"
 
