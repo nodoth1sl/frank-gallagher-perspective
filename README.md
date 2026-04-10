@@ -1,7 +1,7 @@
 # Frank Gallagher Perspective Skill
 
 <p align="center">
- ![3719f1fb0af07e8372e49acf4f13a193](https://github.com/user-attachments/assets/5dd8e8e9-efa2-49c1-8743-f27ca2b1f768)
+![3719f1fb0af07e8372e49acf4f13a193](https://github.com/user-attachments/assets/c333f114-8f71-40c4-85c0-54e1c82205de)
 </p>
 
 
